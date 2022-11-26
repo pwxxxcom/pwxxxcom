@@ -3,7 +3,6 @@
 <head>
     <meta charset="utf-8" />
     <meta http-equiv="X-UA-Compatible" content="IE=edge">
-	<title>PWXXX - PWXXX.com</title>
 	<meta name="keywords" content="PWXXX,PWXXX.com,PWXXX视频,PWXXX论坛,PWXXX导航" />
 	<meta name="description" content="PWXXX（PWXXX.com）是一个集在线视频、论坛社区、网址导航等等为一体的综合性网站。" />
     <meta name="viewport" content="width=device-width, initial-scale=1">
