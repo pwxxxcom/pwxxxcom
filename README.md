@@ -6,7 +6,7 @@
 	<meta name="keywords" content="PWXXX,PWXXX.com,PWXXX视频,PWXXX论坛,PWXXX导航" />
 	<meta name="description" content="PWXXX（PWXXX.com）是一个集在线视频、论坛社区、网址导航等等为一体的综合性网站。" />
     <meta name="viewport" content="width=device-width, initial-scale=1">
-    <link rel="icon" type="image/png" href="/logo.ico">
+    <link rel="icon" type="image/png" href="/favicon.ico">
 </head>
 <body>
 <div style="text-align:center;">
