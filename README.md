@@ -51,7 +51,7 @@
 	合作联系方式
 </p>
 <p style="text-align:center;">
-	邮箱：pwxxx@pm.me丨TG电报：pwxxxcom
+	Mail：pwxxx@pm.me丨TG：pwxxxcom
 </p>
 <p style="text-align:center;">
 	© Copyright 2022 PWXXX.com All Rights Reserved.
