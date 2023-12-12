@@ -38,9 +38,7 @@
 	<span style="font-size:24px;">网址邮箱：pwxxxcom@gmail.com</span> 
 </p>
 <hr style="width:90%" />
-<p style="text-align:center;">
-	合作联系方式丨TG：@pwxxxcom
-</p>
+
 <p style="text-align:center;">
 	© Copyright 2023 PWXXX.com All Rights Reserved.
 </p>
