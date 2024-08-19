@@ -16,10 +16,20 @@
 	<span style="font-size:24px;">↓↓↓开始浏览网站↓↓↓</span> 
 </p>
 <p style="text-align:center;">
-	<span style="color:#FF9900;font-size:24px;">PWXXX视频：👉</span> <a href="https://www.pwxxx10.top/" target="_blank"><span style="font-size:24px;">线路一</span></a> &nbsp; <a href="https://www.pwxxx11.top/" target="_blank"><span style="font-size:24px;">线路二</span></a>
+	<span style="color:#FF9900;font-size:24px;">【PWXXX视频】</span><br>
+	<a href="https://pwxxx5.fun" target="_blank">pwxxx5.fun</a><br>
+	<a href="https://pwxxx4.fun" target="_blank">pwxxx4.fun</a><br>
+	<a href="https://pwxxx3.fun" target="_blank">pwxxx3.fun</a><br>
+	<a href="https://pwxxx2.fun" target="_blank">pwxxx2.fun</a><br>
+	<a href="https://pwxxx1.fun" target="_blank">pwxxx1.fun</a><br>
 </p>
 <p style="text-align:center;">
-	<span style="color:#03A9F4;font-size:24px;">PWXXX导航：👉</span> <a href="https://123.pwxxx10.top/" target="_blank"><span style="font-size:24px;">线路一</span></a> &nbsp; <a href="https://123.pwxxx11.top/" target="_blank"><span style="font-size:24px;">线路二</span></a>
+	<span style="color:#FF9900;font-size:24px;">【PWXXX导航】</span><br>
+	<a href="https://123.pwxxx5.fun" target="_blank">123.pwxxx5.fun</a><br>
+	<a href="https://123.pwxxx4.fun" target="_blank">123.pwxxx4.fun</a><br>
+	<a href="https://123.pwxxx3.fun" target="_blank">123.pwxxx3.fun</a><br>
+	<a href="https://123.pwxxx2.fun" target="_blank">123.pwxxx2.fun</a><br>
+	<a href="https://123.pwxxx1.fun" target="_blank">123.pwxxx1.fun</a><br>
 </p>
 <hr style="width:90%" />
 <p style="text-align:center;">
