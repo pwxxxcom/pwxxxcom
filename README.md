@@ -17,6 +17,9 @@
 </p>
 <p style="text-align:center;">
 	<span style="color:#FF9900;font-size:24px;">【PWXXX视频】</span><br>
+	<a href="https://pwxxx8.fun" target="_blank">pwxxx8.fun</a><br>
+	<a href="https://pwxxx7.fun" target="_blank">pwxxx7.fun</a><br>
+	<a href="https://pwxxx6.fun" target="_blank">pwxxx6.fun</a><br>
 	<a href="https://pwxxx5.fun" target="_blank">pwxxx5.fun</a><br>
 	<a href="https://pwxxx4.fun" target="_blank">pwxxx4.fun</a><br>
 	<a href="https://pwxxx3.fun" target="_blank">pwxxx3.fun</a><br>
@@ -25,6 +28,9 @@
 </p>
 <p style="text-align:center;">
 	<span style="color:#FF9900;font-size:24px;">【PWXXX导航】</span><br>
+	<a href="https://123.pwxxx8.fun" target="_blank">123.pwxxx8.fun</a><br>
+	<a href="https://123.pwxxx7.fun" target="_blank">123.pwxxx7.fun</a><br>
+	<a href="https://123.pwxxx6.fun" target="_blank">123.pwxxx6.fun</a><br>
 	<a href="https://123.pwxxx5.fun" target="_blank">123.pwxxx5.fun</a><br>
 	<a href="https://123.pwxxx4.fun" target="_blank">123.pwxxx4.fun</a><br>
 	<a href="https://123.pwxxx3.fun" target="_blank">123.pwxxx3.fun</a><br>
