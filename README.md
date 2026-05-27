@@ -17,24 +17,20 @@
 </p>
 <p style="text-align:center;">
 	<span style="color:#FF9900;font-size:24px;">【PWXXX视频】</span><br>
-	<a href="https://pwxxx.pwxxx07.xyz" target="_blank">pwxxx.pwxxx07.xyz</a><br>
-	<a href="https://pwxxx.pwxxx06.xyz" target="_blank">pwxxx.pwxxx06.xyz</a><br>
-	<a href="https://pwxxx.pwxxx05.xyz" target="_blank">pwxxx.pwxxx05.xyz</a><br>
-	<a href="https://pwxxx.pwxxx04.xyz" target="_blank">pwxxx.pwxxx04.xyz</a><br>
-	<a href="https://pwxxx.pwxxx03.xyz" target="_blank">pwxxx.pwxxx03.xyz</a><br>
-	<a href="https://pwxxx.pwxxx02.xyz" target="_blank">pwxxx.pwxxx02.xyz</a><br>
-	<a href="https://pwxxx.pwxxx01.xyz" target="_blank">pwxxx.pwxxx01.xyz</a><br>
+	<a href="https://pwxxx.pwxxx36.fun" target="_blank">pwxxx.pwxxx36.fun</a><br>
+	<a href="https://pwxxx.pwxxx35.fun" target="_blank">pwxxx.pwxxx35.fun</a><br>
+	<a href="https://pwxxx.pwxxx34.fun" target="_blank">pwxxx.pwxxx34.fun</a><br>
+	<a href="https://pwxxx.pwxxx33.fun" target="_blank">pwxxx.pwxxx33.fun</a><br>
+	<a href="https://pwxxx.pwxxx32.fun" target="_blank">pwxxx.pwxxx32.fun</a><br>
 
 </p>
 <p style="text-align:center;">
 	<span style="color:#FF9900;font-size:24px;">【PWXXX导航】</span><br>
-	<a href="https://123.pwxxx07.xyz" target="_blank">123.pwxxx07.xyz</a><br>
-	<a href="https://123.pwxxx06.xyz" target="_blank">123.pwxxx06.xyz</a><br>
-	<a href="https://123.pwxxx05.xyz" target="_blank">123.pwxxx05.xyz</a><br>
-	<a href="https://123.pwxxx04.xyz" target="_blank">123.pwxxx04.xyz</a><br>
-	<a href="https://123.pwxxx03.xyz" target="_blank">123.pwxxx03.xyz</a><br>
-	<a href="https://123.pwxxx02.xyz" target="_blank">123.pwxxx02.xyz</a><br>
-	<a href="https://123.pwxxx01.xyz" target="_blank">123.pwxxx01.xyz</a><br>
+	<a href="https://123.pwxxx36.fun" target="_blank">123.pwxxx36.fun</a><br>
+	<a href="https://123.pwxxx35.fun" target="_blank">123.pwxxx35.fun</a><br>
+	<a href="https://123.pwxxx34.fun" target="_blank">123.pwxxx34.fun</a><br>
+	<a href="https://123.pwxxx33.fun" target="_blank">123.pwxxx33.fun</a><br>
+	<a href="https://123.pwxxx32.fun" target="_blank">123.pwxxx32.fun</a><br>
 
 </p>
 <hr style="width:90%" />
